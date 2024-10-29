@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💠 About Me:
 ☘️ Learning dsa and dev
 
 ## 🌐 Socials:
